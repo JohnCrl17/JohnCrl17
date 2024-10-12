@@ -11,8 +11,6 @@
 
 - 🤝 I’m looking for help with **software engineer**
 
-- 💬 Ask me about **software engineer**
-
 - 📫 How to reach me **aisatbalbaguio001109@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
